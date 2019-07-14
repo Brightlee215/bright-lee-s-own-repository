@@ -1,2 +1,2 @@
-# bright-lee-s-own-repository
-Ahhhhhhhhhhh!!!!!!!
+# Bright
+Nothing.
